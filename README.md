@@ -5,9 +5,8 @@
 
 <p align="center"> <img src="https://www.image2url.com/r2/default/images/1790586934052-62e83976-d56e-4303-a20f-9293d9f0b5fb.png" width="400">
 
-<p align="center">Gilgadei's # 1 fan 
-
-<p align="center"> pls ask me abt gilgadei
-  </tr>
+<p> <p align="center"> ${\textsf{\color{#AE675B} Gilgadei's}}$ num ${\textsf{\color{#628D91}    1 fan}}$ </p>
+<p align="center"> pls ${\textsf{\color{#0D2846} ask}}$ me abt ${\textsf{\color{#A34D3E}    Gilgadei !  !!}}$  ! 
+  </tr> 
      <table>
 <p align="center"> <img src="https://www.image2url.com/r2/default/images/1790588279699-b1bc96f0-8776-41d9-aa49-6f367d7de8c2.png" width="400"> 
